@@ -22,3 +22,9 @@ Reasons why my brain hurts:
  * I'm thinking of other stuff while doing this.
 
 Here's a [link](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+
+To quote the great Christian Vega
+
+> I like noses.
+
+###### Update: I've gone insane.
