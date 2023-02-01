@@ -23,7 +23,7 @@ Reasons why my brain hurts:
 
 Here's a [link](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
-To quote the great Christian Vega
+To quote the great Christian Vega:
 
 > I like noses.
 
