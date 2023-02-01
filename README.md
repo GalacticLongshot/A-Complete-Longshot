@@ -11,4 +11,4 @@ My favorite color:
 
 > Black
 
-Thank you so much for reading! ☺
+**_Thank you so much for reading!_**
